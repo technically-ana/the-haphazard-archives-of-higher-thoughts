@@ -1,1 +1,1 @@
-# the-haphazard-archives-of-higher-thoughts
+# The Haphazard Archives Of Higher Thoughts
